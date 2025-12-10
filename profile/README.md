@@ -97,13 +97,7 @@ Instalasi dan optimasi jaringan:
 ### 📫 Kontak
 - Website: [cariteknisi.com](#)
 - Email: support@cariteknisi.com
-- Telepon: +62-xxx-xxxx-xxxx
-
----
-
-## 📄 Lisensi
-
-© 2025 **Cari Teknisi**. Semua hak cipta dilindungi undang-undang.
+- Telepon: +62-896-8226-1128
 
 ---
 
